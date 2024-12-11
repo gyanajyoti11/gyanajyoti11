@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gyanajyoti
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning web Development and App Development
-- 📫 How to reach me BY Instagram
+- 📫 How to reach me BY LinkedIn/Instagram
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am very Funny
 
